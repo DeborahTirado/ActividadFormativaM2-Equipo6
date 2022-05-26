@@ -21,7 +21,7 @@ Emilio Tehuintle Ramírez                 A00572154
 
 
 
-Manuel Andrés Rodríguez Rivera           A01659819
+Manuel Andrés Rodríguez Rivera           A01659819 
 
 
 
